@@ -1,2 +1,1 @@
-
-ash
+Men yozdim
